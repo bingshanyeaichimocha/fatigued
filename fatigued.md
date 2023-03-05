@@ -1,1 +1,1 @@
-https://github.com/bingshanyeaichimocha/fatigued/blob/main/CL.gif
+！[fatigued]（https://github.com/bingshanyeaichimocha/fatigued/blob/main/CL.gif）
